@@ -1,4 +1,4 @@
-# click this!!!!!!!
+# read ts!!!!!!!
 
 - HI!! lilith's here, i will include things that arent in my strawpage on here^_^
 - i dont like crowds, if i got drag into one ill get myself out. do NOT drag me back in beo
