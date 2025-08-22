@@ -6,4 +6,4 @@
 - c+h always, but dont when im with friends, i will get bitchy
 - ill make it obvious if i fw you or not
 - dont be shy to int, ill be nice most of the time:3 
-- thats all for now, will update is needed. check strawpage for morrr!!!>_<
+- thats all for now, will update if needed. check strawpage for morrr!!!>_<
